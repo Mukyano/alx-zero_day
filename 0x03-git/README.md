@@ -1,1 +1,1 @@
-chelsea will go to europa league 
+chelsea will go to europa qualifier
